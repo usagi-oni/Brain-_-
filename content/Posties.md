@@ -1,10 +1,9 @@
 ---
-title: Template for Knowledge Base Docs Websites
+post-hardcore ;3:
 ---
-## The index page
+## Summary
 
-This is the index page (`content/index.md`) of your knowledge base docs. It serves as the home page for your website.
-
+a collection of post hardcore bands i know of or enjoy!
 ## Editing pages
 
 You can edit this index page by opening the `content/index.md` file (found in the `content/` folder) in a Markdown-specific app or any text editor. 
@@ -40,3 +39,5 @@ You can use any text editor capable of opening and editing Markdown files.
 
 You can add more pages to your website by adding more Markdown files to the `content/` folder. Take a look at [[Example doc 01]] to learn more.
 
+
+#Summary

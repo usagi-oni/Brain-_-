@@ -1,0 +1,1 @@
+Hi I'm not too sure if this has to be a personal bio about me but my name is Nicole. I love post-hardcore music and have listened to that genre for about 15 years! I love music overall and also enjoy nu-metal and Spanish rock!

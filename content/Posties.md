@@ -8,9 +8,9 @@ post-hardcore ;3:
 a collection of post hardcore bands i know of or enjoy!
 ## Main Categories
 
-* [[math rock/index|index]]
+* [[alternative rock/index|index]]
 * [[screamo/index|index]]
 * [[pop-punk/index|index]]
-* [[metal core/index|index]]
-* [[experimental rock/index|index]]
+* [[hardcore/index|index]]
+* [[progressive rock/index|index]]
 * [[emo/index|index]]

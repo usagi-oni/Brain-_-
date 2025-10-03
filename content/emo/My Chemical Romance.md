@@ -1,10 +1,10 @@
 ## Info
 my chemical romance began in 2001 formed by Gerald, Ray and Mikey. They have 4 studio albums with their first being “ I Brought You My Bullets, You Brought Me Your Love“ which released in 2002.  Fun Fact: Gerald Way formed the band after witnessing 9/11 and influenced him to live life to the fullest. 
 ###### Members
-* Gerald Way - lead singer
-* Ray Toro - Guitar
-* Mikey Way - Bass
-* Frank Lero - Rhythm guitar
+* **Gerald Way** - lead singer
+* **Ray Toro** - Guitar
+* **Mikey Way** - Bass
+* **Frank Lero** - Rhythm guitar
 ### sound
 Their lyrics are pretty emotional and are a little more gothic than most of the bands on here. Like i said they are probably one of the most emo style popular bands in the 2000’s. Although they decided to step away from that emo sound they were and probably still care the picture of Emo.
 #### My Thoughts

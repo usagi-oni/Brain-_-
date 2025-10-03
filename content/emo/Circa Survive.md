@@ -1,10 +1,10 @@
 ## Info
 Circa Survive formed in 2004 by Anthony Green and Colin Frangicetto in Philadelphia, Pennsylvania and debuted with “Juturna” in 2005. They have 7 albums with my favorite one being "Juturna". The band was mostly created after Anthony left his other band Saosin (also pretty good) and with a friend went on to recruit members from Taken and This Day Forward (never heard of them)
 ###### Members
-* Anthony Green - Lead Singer
-* Colin Frangicetto - backing vocals/ rhythm guitar
-* Brendan Ekstom - guitar
-* Steve Clifford - drummer
+* **Anthony Green** - Lead Singer
+* **Colin Frangicetto** - backing vocals/ rhythm guitar
+* **Brendan Ekstom** - guitar
+* **Steve Clifford** - drummer
 ### sound
 Anthony has a pretty high pitched voice but it mixes well with the dynamic sound making him sound very passionate when preforming. The vocals are very melodic and have heart aching lyrics which is why I was interested in the first place!
 #### My Thoughts

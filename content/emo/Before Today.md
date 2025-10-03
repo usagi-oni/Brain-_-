@@ -1,10 +1,10 @@
 ## Info
 before Today was formed by Vic Fuentes and Tony Fuentes in 1998. This band is extremely like underground as cheesy as that sounds but it's really only because they never blew up. They only have 1 album being “ A Celebration of an Ending” but even with it only having one album I see so much of PTV in it and see why it formed.
 ###### Members
-- Vic Fuentes - Lead Singer
-- Tony Fuentes - Drummer
-- Mitch Balatorre - Bass
-- Joe Tancil - Guitar
+- **Vic Fuentes** - Lead Singer
+- **Tony Fuente** - Drummer
+- **Mitch Balatorre** - Bass
+- **Joe Tancil** - Guitar
 ### sound
  Just like PTV their lyrics are extremely emotional and involve aspects of screamo in it. Vic's Sound is a lot harsher than in PTV but more like A Flair for the Dramatic. 
 #### My Thoughts

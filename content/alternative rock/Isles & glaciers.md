@@ -1,13 +1,13 @@
 ## Info
 The band originated around 2010 in Royal Oak, Michigan when Craig Owens, from Chiodos, wanted to pull together different musicians. It was considered a super group with different collaborators and honestly one of the coolest projects I've seen since it has Vic Fuentes and Johnny Craig (original DGD lead vocalist). They unfortunately only made one EP being “The Hearts Of Lonely People” but it was such a good EP that I listen to it almost everyday. The band was made just to write together as friends and collaborate to have fun! They would randomly preform in different places but as of now its up in the air if the band will ever get together to make music again.
 ###### Members
-* Jonny Craig – vocals
-* Craig Owens – vocals
-* Vic Fuentes – vocals, rhythm guitar
-* Nick Martin – lead guitar, backing vocals
-* Brian Southall – guitars, keyboards, synthesizers
-* Matt Goddard – bass guitar
-* Mike Fuentes – drums
+* **Jonny Craig** – vocals
+* **Craig Owens** – vocals
+* **Vic Fuentes** – vocals, rhythm guitar
+* **Nick Martin** – lead guitar, backing vocals
+* **Brian Southall** – guitars, keyboards, synthesizers
+* **Matt Goddard** – bass guitar
+* **Mike Fuentes** – drums
 ### sound
 The band blended lots of different genres in order to achieve a more ambient and experimental sound. they had multiple lead vocalist so there was always different screams, cleans and melodic vocals in their tracks.
 #### My Thoughts

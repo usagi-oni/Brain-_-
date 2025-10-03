@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 pierce the veil is an emo post hardcore band based from San Diego, California. The band has about five albums out, with their first one releasing in 2007 named “A Flair For The Dramatic”, which is also my favorite. Fun fact, originally Vic Fuentes had stared in before today before making pierce the veil which ended up becoming one of the most popular emo bands in the 2000’s. His brother used to be in the band (Tony Fuentes) but due to a very serious allegation he, rightfully, left the band.
 ##### Members

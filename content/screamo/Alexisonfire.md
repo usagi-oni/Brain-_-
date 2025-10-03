@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 
 Alexisonfire joined the post-hardcore scene in 2001 coming from St. Catharines, Ontario, Canada. two of the local bands in the area decided to collaborate and they ended up with the beautiful sounds of "Alexisonfire". their name came from their discovery of a web article about a contortionist stripper named "Alexis Fire" and they ended up with legal issues because of the name but got to keep it. Their First album out was their self titled which is my favorite one! 
@@ -12,7 +16,8 @@ hey had the idea to create a sound mixed with melodic singing, chaotic, screamin
 #### My Thoughts
 I barely started listing to this band but i love their first album and how intense everything is. its that type of music you want to jump around and throw and break things. 
 
-### **
+![[Pasted image 20251003160133.png]]
+### *Alexisonfire performing in London*
 
 >"I was cast away once  
  But I will be found again  

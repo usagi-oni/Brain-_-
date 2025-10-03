@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 
 Wolf & Bear originated in Sacramento, California, in 2013 (I’ve noticed a lot of these bands originated around the same spots lol). They have about 2 full albums with “Everything Is Going Grey” being their first, that one is also my favorite out of the two. A lot of their influences were bands in their local scene and across the central valley.
@@ -13,7 +17,8 @@ Originally the band wanted to “Expand on the progressive rock genre” which e
 #### My Thoughts
 They incorporate many different genres very well and although they aren’t my favorite on here they’re pretty solid. They also helped me learn more about the "Swancore" genre since they are a one of the big bands representing it.
 
-### **
+![[Pasted image 20251003154447.png]]
+### *W&B performing in Swanfest*
 
 >"Should I let you fall? Are you too far gone?  
 'Cause after all, I'm stuck in the middle  

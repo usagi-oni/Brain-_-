@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 Circa Survive formed in 2004 by Anthony Green and Colin Frangicetto in Philadelphia, Pennsylvania and debuted with “Juturna” in 2005. They have 7 albums with my favorite one being "Juturna". The band was mostly created after Anthony left his other band Saosin (also pretty good) and with a friend went on to recruit members from Taken and This Day Forward (never heard of them)
 ###### Members

@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 Hawthorne Heights formed in Dayton, Ohio in 2001 and were originally called "A day in the Life" but decided to change their name to fit their more darker and poetic tones. Their first album was "The Silence in Black and White" which honestly is the only one i listen to since i listened to this band more during high school!
 ###### Members
@@ -11,7 +15,8 @@ Hawthorne Heights formed in Dayton, Ohio in 2001 and were originally called "A d
 #### My Thoughts
 overall i think JT's voice is very distinct and a very good example of that era the original screamed vocals as well since they are so harsh and forced made their music very unique in the screamo scene.
 
-### **
+![[Pasted image 20251003160241.png]]
+### *HH performing in London*
 
 >"I sleep with one eye open so I can see you breathing (_I sleep with one eye open_)  
  I follow your chest home until I (_So I can see you breathing_)  

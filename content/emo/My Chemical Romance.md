@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 my chemical romance began in 2001 formed by Gerald, Ray and Mikey. They have 4 studio albums with their first being “ I Brought You My Bullets, You Brought Me Your Love“ which released in 2002.  Fun Fact: Gerald Way formed the band after witnessing 9/11 and influenced him to live life to the fullest. 
 ###### Members

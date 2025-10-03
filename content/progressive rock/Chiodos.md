@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 Chiodos was a band form Davison, Michigan that was born in 2001. The name was a tribute to the filmmakers Stephen, Charles, and Edward Chiodo, who made the film Killer Klowns from Outer Space. They released their full first album titled “ _All's Well That Ends Well”_  in 2005, which happens to be my favorite and honestly the best one. They started off as The Chiodos Brothers but eventually just switched it to Chiodos just to shorten it. The band did end up breaking up in 2016 but they were considered one of the leaders of the progressive scene. 
 ###### Members
@@ -11,7 +15,8 @@ Their music seems urgent and aggressive with theatrical vocals which often shift
 #### My Thoughts
 I think its pretty cool they started out in high school and would play at smaller venues around the area like The flint Local 432. I don't listen to this band a lot but still like them enough to add them to the list.
 
-### **
+![[Pasted image 20251003154026.png]]
+### *Chiodos performing at Warped Tour *
 
 >"Ignoring what we've felt (What)  
 Overlooking what we've done (Do you)  

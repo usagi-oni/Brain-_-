@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 Royal Coda was founded in 2017 in Sacramento county, California by Sergio Medina. It was mostly a project band for him to be able to experiment and play around with new writing styles that were out of his routine since he was so disillusioned by the current post-hardcore scene. The band recorded their first album in 2018 which was self titled but my favorite would be “To only a few at first". 
 ###### Members
@@ -11,7 +15,8 @@ With them being able to freely express themselves under the post-hardcore title 
 #### My Thoughts
 I started listening to this band after i found out Kurt Travis would work on various different projects and really enjoyed how different they sounded. it wasn't my usual mix of post-hardcore but i loved it and loved how emotional yet silly the lyrics can be.
 
-### **
+![[kurt.png]]
+### *Kurt Travis performing for royal coda in Sacramento, California *
 
 >"I just need tonight to try to clarify  
 I know that it's no use, it doesn’t hurt to try  

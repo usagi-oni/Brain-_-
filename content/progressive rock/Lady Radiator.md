@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 Lady radiator originated from Union City, New jersey around 2006. They currently have two albums starting with “Bounce Energy Hear Me Out” and my favorite song being from that album titled  “Ready explode”. The band itself was becoming popular but unfortunately came across some turmoil and split in 2010 but have now made a come back in 2025 because of their random spike in popularity from TikTok! 
 ###### Members
@@ -10,7 +14,8 @@ The band has a very dramatic and atmospheric style with a lot of their lyrics be
 #### My Thoughts
  I used to listen to this band a bit in high school but started up again when I noticed they got together. I think its pretty awesome they were able to continue their passion on making music even if its just two members now and I’m actually going to see them REALLY soon which has me extremely excited!
 
-### **
+![[Pasted image 20251003153839.png]]
+### *The only two members left of Lady Radiator -Adam on the left and Kenny on the right*
 
 >"Some people use people  
 You gotta let people think people-  

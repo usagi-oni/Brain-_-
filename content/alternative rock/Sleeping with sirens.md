@@ -1,3 +1,6 @@
+---
+time: 2025-10-03
+---
 ## Info
  Sleeping with sirens came form Orlando, Florida in 2009 by members of “For All We Know”. They Debuted wit their first album “With Ears to See and Eyes to Hear” but their album “Let's Cheers to This” is my favorite out of them all. They are one of the most popular bands that managed to influence the emo/ post hardcore scene in the 2000’s. their music has a variety of influences with people noticing diverse sound within the band
 ###### Members
@@ -9,7 +12,9 @@
 most of their early work had a good balance of screaming and melodic vocals and had more of a post-hardcore, screamo vibe.
 #### My Thoughts
 I've listened to this band since high school but its just one of those bands where i can't say i listen to as much anymore. I do enjoy some of their songs a lot but overall i can see how they influenced the early emo scene!
-### **
+
+![[Pasted image 20251003153622.png]]
+### *SWS preforming in the philippines *
 
 > "Just open up like a page in a book  
  These words that I'm writing won't be misunderstood 

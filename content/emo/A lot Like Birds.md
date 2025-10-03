@@ -1,3 +1,7 @@
+---
+time: 2025-10-03
+---
+
 ## Info
 The band came from Sacramento California and was made by Micheal Franzino who just invited a lot of different artists to collaborate for their first album “Plan B” which came out in 2009. There really isn't too much information over the band and i only know enough from the time that Kurt joined to when he left since i love his vocals so much.
 ###### Members

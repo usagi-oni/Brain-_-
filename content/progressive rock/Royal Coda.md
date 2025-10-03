@@ -10,7 +10,15 @@ Royal Coda was founded in 2017 in Sacramento county, California by Sergio Medina
 With them being able to freely express themselves under the post-hardcore title I think they were able to do way more with their music and sounds for sure. I think their use of electronic sounds makes their albums stand out!
 #### My Thoughts
 I started listening to this band after i found out Kurt Travis would work on various different projects and really enjoyed how different they sounded. it wasn't my usual mix of post-hardcore but i loved it and loved how emotional yet silly the lyrics can be.
+
+### **
+
+>"I just need tonight to try to clarify  
+I know that it's no use, it doesn’t hurt to try  
+Just a little too much inside my own head  
+My confidence is dead"
+
+[RC WIKI](https://en.wikipedia.org/wiki/Royal_Coda)
+[Fav song](https://genius.com/Royal-coda-becoming-the-memory-lyrics)
 ## See also
-
-
-[https://en.wikipedia.org/wiki/Royal_Coda](https://en.wikipedia.org/wiki/Royal_Coda)
+[[Alt rock]]

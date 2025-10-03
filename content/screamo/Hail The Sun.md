@@ -10,7 +10,18 @@ they have a mixture of complex guitar work and a lot of erupt tempo changes and 
 #### My Thoughts
 Their love for music is what really makes me love this band because i like completely understand and makes them really relatable. I started listening to them in high school and can still jam out to their EP on repeat!
 
+### **
+
+>"Regretful rivers flow aplenty in his mind  
+ The tributaries are the choices he declined
+ Dropped in a canyon, that's where you'll reside  
+ Just two of us, but I'm the one alive"
+
+[HTS WIKI](https://en.wikipedia.org/wiki/Hail_the_Sun)
+[fav son](https://genius.com/Hail-the-sun-will-they-blame-me-if-you-go-disappearing-lyrics)
+
 ## See also
+[[progressive rock]]
 
    
 

@@ -10,8 +10,15 @@ Chiodos was a band form Davison, Michigan that was born in 2001. The name was a 
 Their music seems urgent and aggressive with theatrical vocals which often shifts from melodic to intense screaming. they also add a bit of keyboard in there which i dont see as often in a lot of post hardcore.
 #### My Thoughts
 I think its pretty cool they started out in high school and would play at smaller venues around the area like The flint Local 432. I don't listen to this band a lot but still like them enough to add them to the list.
+
+### **
+
+>"Ignoring what we've felt (What)  
+Overlooking what we've done (Do you)  
+No awkward silences, no hiding any truths (Say?)"
+
+[CHI WIKI](https://en.wikipedia.org/wiki/Chiodos)
+[fav song](https://genius.com/Chiodos-baby-you-wouldnt-last-a-minute-on-the-creek-lyrics)
 ## See also
-
-
-
-[https://en.wikipedia.org/wiki/Chiodos](https://en.wikipedia.org/wiki/Chiodos)
+[[emo]]
+[[Screamo]]

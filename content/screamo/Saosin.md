@@ -9,5 +9,16 @@ Saosin made their come up in 2003 coming from Orange County, California. guitari
 helped define the screamo/emo explosion of the mid 2000s with their blend of emotional vocals and technical musicianship. Anthony Green always comes in clutch with his high-pitched vocals and intensity.  
 #### My Thoughts
 Like Circa survive i didn't really listen too much to saosin but i still really loved the lyrics and how emotional the songs sound. it all seems like it was made with strong meanings and I'm a huge geek for music like that.
-## See also
 
+### **
+
+>"That mistake was gold, I know that without you  
+Is something that I could never do  
+That was why, staple the eyes and  
+Seven dates for me to sell machines  
+And tear on"
+
+[SAO WIKI](https://en.wikipedia.org/wiki/Saosin)
+[fav song](https://genius.com/Saosin-seven-years-lyrics)
+## See also
+[[emo]]

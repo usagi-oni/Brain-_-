@@ -18,7 +18,7 @@ And even if you're woken up, keep contact both at once
 We've made mistakes like this  
 And I'm just learning"
 
-[[https://en.wikipedia.org/wiki/Circa_Survive]]
-[[https://genius.com/Circa-survive-stop-the-fuckin-car-lyrics]]
+[CS WIKI](https://en.wikipedia.org/wiki/Circa_Survive)
+[fav song](https://genius.com/Circa-survive-stop-the-fuckin-car-lyrics)
 ## See also
 [[emo]]

@@ -17,9 +17,8 @@ You said you want someone who actually cares
 But I'll say what I want because nobody's around when I talk
 It feels better to fall asleep alone ('Cause that's the only way I know)"
 
-[[https://en.wikipedia.org/wiki/Pierce_the_Veil]]
-[[https://genius.com/Pierce-the-veil-drella-lyrics]]
-
+[PTV WIKI](https://en.wikipedia.org/wiki/Pierce_the_Veil)
+[fav song](https://genius.com/Pierce-the-veil-drella-lyrics)
 ## See also
 [[emo]]
 [[Before Today]]

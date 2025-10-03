@@ -18,8 +18,8 @@ I kind of like what direction they were leading to over the years and thought th
 It's okay, it's okay, oh  
 We can't look at you, you're not the same"
 
-[[https://en.wikipedia.org/wiki/A_Lot_Like_Birds]]
-[[https://genius.com/A-lot-like-birds-vanitys-fair-lyrics]]
+[ALLB WIKI](https://en.wikipedia.org/wiki/A_Lot_Like_Birds)
+[fav song](https://genius.com/A-lot-like-birds-vanitys-fair-lyrics)
 
 ## See also
 [[experimental rock]]

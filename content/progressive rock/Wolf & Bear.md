@@ -12,7 +12,18 @@ Wolf & Bear originated in Sacramento, California, in 2013 (I’ve noticed a lot 
 Originally the band wanted to “Expand on the progressive rock genre” which explains their melodic hardcore style. They received a lot of recognition over their dynamic blend of clean and unclean vocals, intricate guitar work and complex rhythms.
 #### My Thoughts
 They incorporate many different genres very well and although they aren’t my favorite on here they’re pretty solid. They also helped me learn more about the "Swancore" genre since they are a one of the big bands representing it.
+
+### **
+
+>"Should I let you fall? Are you too far gone?  
+'Cause after all, I'm stuck in the middle  
+Hand on the trigger, I'm tempted a little, but  
+Could you open up if you wanted to?"
+
+[W&B WIKI](https://www.last.fm/music/Wolf+&+Bear)
+[fav song](https://genius.com/Wolf-and-bear-deleto-lyrics)
 ## See also
- 
+ [[screamo]]
+ [[emo]]
 
 [https://www.last.fm/music/Wolf+&+Bear](https://www.last.fm/music/Wolf+&+Bear)

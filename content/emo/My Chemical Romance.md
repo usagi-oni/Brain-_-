@@ -19,9 +19,8 @@ suits and crazy looking makeup! by far my favorite album is “Three Cheers for 
 I've told you time and time again
 You sing the words, but don't know what it means (I'm not okay)"
 
-[[https://en.wikipedia.org/wiki/My_Chemical_Romance]]
-[[https://genius.com/My-chemical-romance-im-not-okay-i-promise-lyrics]]
-
+[mcr wiki](https://en.wikipedia.org/wiki/My_Chemical_Romance)
+[Song i enjoy](https://genius.com/My-chemical-romance-im-not-okay-i-promise-lyrics)
 ## See Also 
 [[Emo]]
 [[Pierce The Veil]]

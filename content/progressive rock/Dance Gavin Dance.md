@@ -9,6 +9,16 @@ Dance Gavin Dance originates from Sacramento California and started making music
  The band Since the band has changed over the years they don’t have a very distinct sound except probably the fast paced guitar rifts. A lot of the earlier sounds were emotional and very soul like. The band still has that emotional sound but now its more of a mixture of styles like funk and screamo.  
 #### My Thoughts
 Dance Gavin dance is one of my favorite bands of all time honestly. I listen to them on a daily basis and have been a loyal follower for about 5 years! I've probably met them a handful of times and love how open they are about answering questions about songs and how meaningful a lot of them are. they have a very special place in my heart and i can honestly listen to most, if not all their songs on repeat!
-## See also
 
-[https://www.last.fm/music/Dance+Gavin+Dance/+wiki](https://www.last.fm/music/Dance+Gavin+Dance/+wiki)
+### **
+
+>"Move in, take what's not yours, take what I worked for  
+Slow down, stop me now, you're tearing apart my soul"
+
+[DGD WIKI](https://www.last.fm/music/Dance+Gavin+Dance/+wiki)
+[fav song](https://genius.com/Dance-gavin-dance-spooks-lyrics)
+## See also
+[[emo]]
+[[screamo]]
+[[Alt rock]]
+[](https://www.last.fm/music/Dance+Gavin+Dance/+wiki)

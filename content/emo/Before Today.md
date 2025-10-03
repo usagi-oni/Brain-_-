@@ -19,8 +19,9 @@ We'll try, still strong in chains
 Urging the mind to speak until weakness has been disarmed
 Disarmed"
 
-[[https://pierce-the-veil.fandom.com/wiki/Before_Today]]
-[[https://genius.com/Before-today-pierce-the-veil-lyrics]]
+[BT WIKI](https://pierce-the-veil.fandom.com/wiki/Before_Today)
+[fav song](https://genius.com/Before-today-pierce-the-veil-lyrics)
+
 
 ## See also 
 [[Pierce the Veil]]

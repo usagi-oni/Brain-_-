@@ -10,9 +10,17 @@ Grace Gale is a smaller band compared to the many on this list. they originate f
 Grace Gale is very aggressive with crazy tempo changes and in your face screams that i simply wasn't used to in most screamo music.   Their lyrics and attitude throughout their songs include humor and  tongue-in-cheek elements which sets them apart form the usual emotional scene they're in especially since they don't take themselves too seriously. 
 #### My Thoughts
 I was introduced to Grace Gale very recently but think they're pretty funny and love how they mess around with their lyrics and sound. very experimental over all but i enjoy that there's people who want to have fun with their music.
+
+### **
+
+> "Put on your boots, my dear  
+ Self pity is rough here  
+ Such a far way to walk and  
+ It's too deep  
+ I got a chill (You're cold, so fucking cold)  
+ Fate calls me out for winding up dead"
+
+[GG WIKI](https://www.last.fm/music/Grace+Gale/+wiki)
+[fav song](https://genius.com/Grace-gale-part-time-gravedigger-full-time-scumbag-lyrics)
 ## See also
-
-
-
-
-https://www.last.fm/music/Grace+Gale/+wiki
+[[Emo]]
